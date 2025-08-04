@@ -18,6 +18,6 @@ I am an IT professional with 16 years of experience in **computer networks** and
 
 ## 📫 Get in Touch
 - **LinkedIn**: www.linkedin.com/in/hadi-amiri-b5876a61
-- **Email**: hadi.cx22@gmail.com
+- **Email**: hadi.amiri.tech@gmail.com
 
 🚀 Open to collaboration and learning new technologies!
